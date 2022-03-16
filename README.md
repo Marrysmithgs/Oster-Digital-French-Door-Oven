@@ -1,1 +1,2 @@
-# Oster-Digital-French-Door-Oven
+# Oster Digital French Door Oven
+The [Oster Digital French Door Oven](https://ovenadventure.com/oster-digital-french-door-oven-review/) looks elegant, cooks with convection and makes meal prep easier. Unique design opens both doors with a single pull so you can place dishes in the oven without hassle. Digital controls provide added convenience to bake, toast, broil, warm and convection cook in just one touch.
